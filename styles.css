@@ -133,10 +133,6 @@ h1 {
   grid-column: 1;
 }
 
-.reasons-card {
-  grid-column: 1;
-}
-
 .reward-card,
 .staple-card {
   grid-column: 1;

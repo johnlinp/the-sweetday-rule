@@ -4,17 +4,10 @@ One Sweetday a week. Make it worth the wait.
 
 ## The Idea
 
-When is the last time you feel excited about having a treat?
-The Sweetday Rule keeps the magic alive by treating sugar like a VIP guest instead of background noise.
-Skip desserts for six days, and save your "golden ticket" for one epic day of indulgence.
-
-## Why Bother?
-
-It's not about losing weight or being "healthy." It's entirely about the payoff.
-
-* **Keep the magic:** When you have a cookie every single day, it stops being special. Waiting for your Sweetday turns the spark back on.
-* **The "Win":** You put in the week, you earn the reward. It makes the dessert feel like an actual win.
-* **Zero guilt:** Since this is a planned event, you can just eat it and enjoy it. No "cheating," no regret. Just a scheduled payout.
+I only eat sweets on Fridays, and it feels amazing!
+It doesn't have to be Friday; **choose any one day of the week for sweets and skip them on the other six days**.
+It's simply that having sweets less often can make them feel special, and planning the day ahead of time makes them easier to enjoy without guilt. Weight loss is just a side effect.
+You can do it too, starting today!
 
 ## What counts as "Sweet"?
 
@@ -52,7 +45,7 @@ A little bit of sugar in a savory sauce is fine to include as part of your every
 These go in the "Sweetday" category. Even though they have no sugar, they are designed to mimic a sweet profile, which keeps the "crave" active during the week.
 
 **Can I have smoothies?**
-It depends on how they are made. If you make it yourself at home (e.g., banana, kale, milk), it's fuel—you control the ingredients. If it's a commercial smoothie from a cafe or organic shop, it's a reward, as these are often sweetened with extra fruit concentrates or syrups.
+It depends on how they are made. If you make it yourself at home (e.g., banana, kale, milk), it's fuel. You control the ingredients. If it's a commercial smoothie from a cafe or organic shop, it's a reward, as these are often sweetened with extra fruit concentrates or syrups.
 
 **What about cough syrup or vitamin gummies?**
 These are functional, not treats. They don't count toward the rule.
