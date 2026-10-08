@@ -2,6 +2,8 @@
 
 One Sweetday a week. Make it worth the wait.
 
+Read online: [English](https://johnlin.tw/the-sweetday-rule/) | [正體中文](https://johnlin.tw/the-sweetday-rule/zh-TW/)
+
 ## The Idea
 
 I only eat sweets on Fridays, and it feels amazing!
